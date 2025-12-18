@@ -8,7 +8,6 @@ https://github.com/user-attachments/assets/11921f71-01ba-4f0d-b13f-0857a4118d5c
 
 https://github.com/user-attachments/assets/18cd52d3-9381-42c0-a253-735516aec237
 
- ![AI강아지](https://i.imgur.com/Zy9TE91.png)
 https://github.com/user-attachments/assets/222d8a3d-5516-4da8-93a2-3e2624554088
 
 
