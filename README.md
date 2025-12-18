@@ -1,13 +1,11 @@
 # 💻 [PIGMA, AI[
 
-## ✨Gemini Nano Banana
+## ✨Gemini, Nano Banana
 
- ![와이스튜디오](https://i.imgur.com/pZPqgR8.jpeg)
+ ![AI강아지]
 
+https://github.com/user-attachments/assets/11921f71-01ba-4f0d-b13f-0857a4118d5c
 
-(
-    https://jungsojin12.github.io/Ystudio/
-)
 
 피그마 랜딩페이지
 
