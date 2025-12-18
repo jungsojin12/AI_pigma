@@ -1,4 +1,4 @@
-# 💻 [PIGMA, AI[
+# 💻 [PIGMA, AI]
 
 ## ✨Gemini, Nano Banana
 
@@ -9,7 +9,7 @@ https://github.com/user-attachments/assets/11921f71-01ba-4f0d-b13f-0857a4118d5c
 
 피그마 랜딩페이지
 
-![피그마 랜딩페이지](https://i.imgur.com/AyvE10d.png)
+![피그마 랜딩페이지](https://i.imgur.com/jsWc1c7.png)
 
 
 ---
