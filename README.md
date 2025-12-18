@@ -6,6 +6,10 @@
 
 https://github.com/user-attachments/assets/11921f71-01ba-4f0d-b13f-0857a4118d5c
 
+https://github.com/user-attachments/assets/18cd52d3-9381-42c0-a253-735516aec237
+
+
+
 
 ## ✨피그마 랜딩페이지
 
