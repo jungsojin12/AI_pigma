@@ -10,7 +10,8 @@ https://github.com/user-attachments/assets/18cd52d3-9381-42c0-a253-735516aec237
 
 https://github.com/user-attachments/assets/222d8a3d-5516-4da8-93a2-3e2624554088
 
-
+![나노바나나 이미지_텀블러](https://i.imgur.com/P13AJMO.png)
+![나노바나나 이미지_텀블러](https://i.imgur.com/Oz42x98.png)
 
 ## ✨피그마 랜딩페이지
 
