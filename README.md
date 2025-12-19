@@ -1,4 +1,4 @@
-# 💻 [PIGMA, AI]
+# 💻 [AI/Nano Banana/Google Flow/PIGMA]
 
 ## ✨Gemini, Nano Banana, Flow
 
